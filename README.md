@@ -41,3 +41,7 @@ put pics for inspiration here:
 ![Ghirkin](https://camo.githubusercontent.com/1657658dda4673edbb1df9c829ee1cb0ca016bbdec253fe0b2ce526b6c451f7b/68747470733a2f2f342e62702e626c6f6773706f742e636f6d2f2d735131382d6c4e5a584f632f57437a6c5464652d3450492f41414141414141425f4a512f7151726568414d4736444d4b663369346f6a346d6b6d4c474f6654557662334b67434c63422f733634302f494d475f32303136313131365f3132323932362e6a7067)
 
 ![68](https://github.com/MydriasisOneMillion/Wilma-s_Wacky_Work_hardWare/blob/main/Pics/68_percent.png?raw=true)
+
+![mad beacuse](https://media.printables.com/media/prints/61546/images/644842_9d8fa88f-8d7c-404b-b5a7-f1f07bcfac38/thumbs/inside/1920x1440/png/2021-03-26-18_36_57-settings.webp)
+
+i feel like this ones mad at me
