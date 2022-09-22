@@ -39,6 +39,7 @@ Other werid bullshit?
 
 put pics for inspiration here:
 
+big_list of examples (https://github.com/BenRoe/awesome-mechanical-keyboard/blob/master/docs/README.md)
 
 ![Atreus62](https://camo.githubusercontent.com/07b58400e8e26e135453a6b285bc01a78c2feecc4aed05ff20675a6e0fd924e7/68747470733a2f2f6173736574732e62696763617274656c2e636f6d2f70726f647563745f696d616765732f3138393333353238322f42496c714374642e6a70673f6175746f3d666f726d6174266669743d6d617826773d31323030)
 
